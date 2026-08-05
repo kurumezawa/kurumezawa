@@ -18,7 +18,9 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠳⠦⢤⠤⠶⠋⠙⠳⣆⣀⣈⡿⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠉⠉⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 </pre>
-  
-i need help with github </3
 
-<sub>[>.< patreon](https://www.patreon.com/cw/kurumezawa)</sub>
+
+<a href="https://www.patreon.com/cw/kurumezawa" target="_blank">
+  <img width="150" height="20" alt="blinkiesCafe-NF" src="https://github.com/user-attachments/assets/71a170bb-c33d-4fb4-8184-75c0a2d3db4d" />
+</a>
+
