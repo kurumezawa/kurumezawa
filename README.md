@@ -21,4 +21,4 @@
   
 i need help with github </3
 
-<sub>[>.< patreon](https://patreon.com/kurumezawa?utm_medium=unknown&utm_source=join_link&utm_campaign=creatorshare_creator&utm_content=copyLink)</sub>
+<sub>[>.< patreon](https://www.patreon.com/cw/kurumezawa)</sub>
